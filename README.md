@@ -1,3 +1,4 @@
+![Pixie!](https://github.com/Anthrall/kind-pixie/blob/main/aGea8j.jpg)
 # Kind Pixie by Anthrall
 **EN**
 
